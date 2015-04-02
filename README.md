@@ -1,4 +1,4 @@
-fuckingloveyou
+loveyou
 ==============
 
 for fun
